@@ -3,9 +3,9 @@
 ---
 
 ### Contact info:
-**phone:** +998(90)829-04-25 
-**E-mail:** vova97nee@gmail.com
-**telegram:** @cinnamon_va
+**phone:** +998(90)***-04-25 
+**E-mail:** vova*****@gmail.com
+**telegram:** @cinnam*****
 
 ---
 
@@ -18,7 +18,6 @@ Aspired junior developer with psychology & HR management background.
 * CSS
 * Javascript
 * Git
-* Java
 
 ---
 ### Professional Experience:
