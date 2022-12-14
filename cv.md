@@ -3,9 +3,9 @@
 ---
 
 ### Contact info:
-**phone:** +998(90)829-04-25 
-**E-mail:** vova97nee0@gmail.com
-**telegram:** @cinnamon_va
+- **phone:** +998(90)829-04-25 
+- **E-mail:** vova97nee0@gmail.com
+- **telegram:** @cinnamon_va
 
 ---
 
