@@ -3,9 +3,9 @@
 ---
 
 ### Contact info:
-**phone:** +998(90)***-04-25 
-**E-mail:** vova*****@gmail.com
-**telegram:** @cinnam*****
+**phone:** +998(90)8_*-04-25 
+**E-mail:** vova_*_*@gmail.com
+**telegram:** @cinnam*_*_*
 
 ---
 
